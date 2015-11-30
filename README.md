@@ -1,0 +1,2 @@
+# Revenge-Issues-Using-Voodoo
+WERE YOU HURT?  WERE YOU BETRAYED?   WERE YOU WRONGED?  DID SOMEONE HARM YOU? WAS JUSTICE SERVED? Looking for Curses or HEX Spells? Looking for Black Magic   Witchcraft Spells to seek Justice or Revenge?Looking  for  a  powerful  Curse  to use person  who  needs  to  be  Cursed? a  HEX Spell  or Black  Magic  Spell Caster to HEX or Curse Someone? visit: http://revengewitches.info
